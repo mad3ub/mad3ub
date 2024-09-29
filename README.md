@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @mad3ub
+- 👀 I’m interested in learning more about programming
+- 🌱 I’m currently learning : Java and C++
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me mad3ub0@gmail.com
+- ⚡ Fun fact: there will be a set point after your death that you'll be thought of for the last time , erased from history
